@@ -9,7 +9,7 @@ So let's begin...
 
 my geek is Computer Science - Educational Videos Creator 🎉
 You can support by buying a coffee ☕️ here —
-https://www.paypal/damnngwasi@gmail.com
+https://www.paypal.com/mep/dashboard
 
 ✻ I really hope you find this video useful. ♥
 
