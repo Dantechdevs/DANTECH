@@ -7,9 +7,9 @@ Now XAMPP is a free and open-source cross-platform web server solution stack pac
 So our main question is How to Install the Xampp server on Windows 10? 
 So let's begin...
 
-my geek is Computer Science - Educational Videos Creator 🎉
+Geeky Script(@GeekyScript) is Computer Science - Educational Videos Creator 🎉
 You can support by buying a coffee ☕️ here —
-https://www.paypal.com/mep/dashboard
+(https://www.buymeacoffee.com/damnngwasi0)
 
 ✻ I really hope you find this video useful. ♥
 
